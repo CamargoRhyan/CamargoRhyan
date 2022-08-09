@@ -2,7 +2,7 @@
 - 👀 Aprendendo A Progamar Atualmente Sobre O HTML5.
 - 📱  Outra Plataforma Em Progresso inglesparana-EF E Redação Paraná.
 - ❤️ Melhorando Meu Aprendizado Sobre Progamação.
-- 📚 Aprendi Sobre Github,Java,Scratch E HTML5.
+- 📚 ✅Github ✅Java ✅Scratch 
 - 🤝🏼 Plataforma De Apoio GitHub
 - 💼 Estudante
 - 🎂 15 Anos
