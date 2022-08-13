@@ -3,7 +3,7 @@
 - 📱  Outra Plataforma Em Progresso inglesparana-EF E Redação Paraná.
 - ❤️ Melhorando Meu Aprendizado Sobre Progamação.
 - 📚 ✅Github ✅Java ✅Scratch 
-- 🤝🏼 Plataforma De Apoio GitHub
+- 🤝🏼 Plataforma De Apoio Alura
 - 💼 Estudante
 - 🎂 15 Anos
 <!---
