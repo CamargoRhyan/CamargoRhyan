@@ -8,7 +8,7 @@
 - 🎂 15 Anos.
 - 🌎 Brasil.
 - 🎮 Gosto de Jogar no meu tempo livre. 
-- 🍎 Hábitos: da produtividade às metas pessoais (Alura)
+- 🍎 Hábitos: da produtividade às metas pessoais (Alura) ✅
 - 📮 Opinião.
 - 📃 GitHub.
 - 🎯 19k (xp)-Alura
